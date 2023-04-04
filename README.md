@@ -1,4 +1,4 @@
-### Olá Eu sou Marcelo Moraes 👋
+### Marcelo Moraes 👋
 🎃Fazendo MBA na FIAP - Arquitetura de Solução
 
 ☢ email: mmoraes.fiap.rm344581@gmail.com
