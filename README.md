@@ -1,7 +1,7 @@
 ### Marcelo Moraes 👋
 🎃Fazendo MBA na FIAP - Arquitetura de Solução
 
-☢ email: mmoraes.fiap.rm344581@gmail.com
+☢ email: mmoraes.sp.mm@gmail.com
 
 👀 Teste de Criação de Perfil no GIT
 
